@@ -1,1 +1,9 @@
-# Moe
+ıllı  Moe  ╱  Moenella    𐂯  
+
+⏔  She   .   Any     ♫
+
+𝟅𝟈    🎪 — 16 (15 bodily)  ☆
+
+(  ≧ᗜ≦)  I LOVE MY GF!!  ᶻ 𝘇 𐰁
+
+![image alt](https://github.com/Moemaxxing/Moe/blob/dbfd3983eccc16e5287a5bcc1e71b2ee0c4b31ad/Untitled729_20260405140521.png)
